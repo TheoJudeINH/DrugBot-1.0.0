@@ -1,0 +1,2 @@
+# DrugBot-1.0.0
+Hahaha 12 YEAR OLD BOI MAKE DIS MOD 
